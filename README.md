@@ -6,5 +6,6 @@ Want to prank your friends or just have some fun during livestreams? This fake T
 
 🔗 Buy Fake TikTok Coins Page Now: Join My Discord - https://discord.gg/YGBPaWZzgY
 
+You can also buy real cheap tiktok coins!
 This is purely for entertainment, so enjoy and have fun! 🔥
 ![image](https://github.com/user-attachments/assets/ebc20294-335e-4dbc-aac4-f1ff2d70afa0)
